@@ -1,6 +1,6 @@
 **Privacy Policy**
 
-Haydara built the Programmer Run app as an Ad Supported app. This SERVICE is provided by Haydara at no cost and is intended for use as is.
+Hayder Kharrufa built the Programmer Run app as an Ad Supported app. This SERVICE is provided by Hayder Kharrufa at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
