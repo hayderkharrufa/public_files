@@ -61,4 +61,4 @@ This policy is effective as of 2023-01-29
 
 **Contact Us**
 
-If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at hayder.kharrufa@gmail.com.
+If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at iamhaydara@gmail.com.
